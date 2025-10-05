@@ -1,4 +1,4 @@
-### 🧠 **AloganLabs**
+### 🌌 **AloganLabs**
 
 **Motto**
 
